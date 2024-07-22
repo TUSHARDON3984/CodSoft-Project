@@ -1,2 +1,2 @@
 # CodSoft-Project
-Here are all the projects complted by me
+Here are all the projects completed by me
